@@ -35,4 +35,8 @@ Same with Halsey, one of my favorite singer, the manic interludes in depression 
 ### My Story with Finland ❄️
 Moi! Moi! I was in Finland in 2019 for semester exchange. Turku is the city where I spent the most happy and memorable four months in my life. Hope to visit Finland again after the Covid-19 Pandemic. 
 
+ ---
+
+<p>
+
 ![Mengyue's Github Stats](https://github-readme-stats.vercel.app/api?username=Dolores2333&show_icons=true&theme=radical)
