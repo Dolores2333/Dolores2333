@@ -23,11 +23,15 @@ I love cats. Once adopted two of them when I was still in the childhood. They ar
 </p>
 
 ### Ashley vs. Halsey
-Same with Halsey, one of my favorite singer, the manic interludes in depression is my friend. I do believe that melancholy exists as its poetic name 'The Black Liquid'. Donnot know whether it's fairy or witch's magic elixir. But it helps me on thinking. 'Covered in the colors pull apart at the seams', I just feel that I do have been to this world. Other bands and singers I am in includes Rammstein, Ghost, Lana Del Rey, Crystal Castle, twenty one pilots and Kent, etc.
+Same with Halsey, one of my favorite singer, the manic interludes in depression is my friend. I do believe that melancholy exists in the state of its poetic name 'The Black Liquid'. Donnot know whether it's fairy or witch's magic elixir. But it helps me on thinking. 'Covered in the colors pull apart at the seams', I just feel that I do have been to this world. Other bands and singers I am in includes Rammstein, Ghost, Lana Del Rey, Crystal Castle, twenty one pilots and Kent, etc.
 
 
  ---
 
 <p>
- <img width="100" align='left' src="https://github.com/Dolores2333/ZHA-Mengyue/blob/master/MeSittingOnIce.jpg?raw=true">
+ <img width="150" align='left' src="https://github.com/Dolores2333/ZHA-Mengyue/blob/master/MeSittingOnIce.jpg?raw=true">
 </p>
+
+### My Story with Finland ❄️
+Moi! Moi! I was in Finland in 2019 for semester exchange. Turku is the city where I spent the most happy and memorable four months in my life. Hope to visit Finland again after the Covid-19 Pandemic. 
+
