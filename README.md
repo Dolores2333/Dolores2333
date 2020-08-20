@@ -9,15 +9,25 @@ I am currently a year one PhD student in Hong Kong University of Sicence and Tec
   ---
  
  <p>
-  <img width="150" align='left' src="https://github.com/Dolores2333/ZHA-Mengyue/blob/master/AGermanCat.jpg?raw=true">
+  <img width="100" align='left' src="https://github.com/Dolores2333/ZHA-Mengyue/blob/master/AGermanCat.jpg?raw=true">
 </p>
 
 ### Don't Call the Cat Angel
 
-I love cats. Adopted two of them in my childhood. They are mysterious, cute, fierce, kind of sexy and so as I am 🩰😘. Collecting pics and videos of cats refreshes the mentally and physically draining PhD life. Thanks to these angels. Oops, my bad, they are satans 👼😈. 
+I love cats. Once adopted two of them when I was still in the childhood. They are mysterious, cute, fierce, kind of sexy and so am I 🩰😘. Collecting pics and videos of cats helps me to refreshe the mentally and physically draining PhD life. Thanks to these angels. Oops, my bad, they are satans 👼😈. 
 
  ---
 
 <p>
-  <a href="https://github.com/Dolores2333/ZHA-Mengyue/blob/master/HalseyPaint.jpg"><img width="200" align='right' src="https://github.com/Dolores2333/ZHA-Mengyue/blob/master/HalseyPaint.jpg?raw=true"></a>
+  <a href="https://github.com/Dolores2333/ZHA-Mengyue/blob/master/HalseyPaint.jpg"><img width="100" align='right' src="https://github.com/Dolores2333/ZHA-Mengyue/blob/master/HalseyPaint.jpg?raw=true"></a>
+</p>
+
+### Ashley vs. Halsey
+Same with Halsey, one of my favorite singer, the manic interludes in depression is my friend. I do believe that melancholy exists as its poetic name 'The Black Liquid'. Donnot know whether it's fairy or witch's magic elixir. But it helps me on thinking. 'Covered in the colors pull apart at the seams', I just feel that I do have been to this world. Other bands and singers I am in includes Rammstein, Ghost, Lana Del Rey, Crystal Castle, twenty one pilots and Kent, etc.
+
+
+ ---
+
+<p>
+ <img width="100" align='left' src="https://github.com/Dolores2333/ZHA-Mengyue/blob/master/MeSittingOnIce.jpg?raw=true">
 </p>
