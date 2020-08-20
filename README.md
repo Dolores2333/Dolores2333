@@ -33,7 +33,9 @@ Same with Halsey, one of my favorite singer, the manic interludes in depression 
 </p>
 
 ### My Story with Finland ❄️
-Moi! Moi! I was in Finland in 2019 for semester exchange. Turku is the city where I spent the most happy and memorable four months in my life. Hope to visit Finland again after the Covid-19 Pandemic. 
+Moi! Moi! I was in Finland in 2019 for the semester exchange. Turku is the city where I spent the most happy and memorable four months in my life. Hope to visit Finland again after the Covid-19 Pandemic. 
+
+Countries I visited in Europe are Finland, Sweden, Norway, Iceland, Baltic States, Czechia, Germany and Italy. Cinnamon rolls and Glog kind of saved my life during the dark and cold nights in Nordic Countries. 
 
  ---
 
