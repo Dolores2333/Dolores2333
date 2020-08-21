@@ -14,7 +14,7 @@ I am currently a year one PhD student in Hong Kong University of Science and Tec
 
 ### Don't Call the Cat Angel
 
-I love cats. Once adopted two of them when I was still in the childhood. They are mysterious, cute, fierce, kind of sexy and so am I 🩰😘. Collecting pics and videos of cats helps me to refreshe the mentally and physically draining PhD life. Thanks to these angels. Oops, my bad, they are Satans 👼😈. 
+I love cats. Once adopted two of them when I was still in the childhood. They are mysterious, cute, fierce, kind of sexy and so am I 🩰😘. Basically, I find all kinds of cats are fanscinating but Skogkatt is my new sweetheart. Collecting pics and videos of cats helps me to refreshe the mentally and physically draining PhD life. Thanks to these angels. Oops, my bad, they are Satans 👼😈. 
 
  ---
 
@@ -23,7 +23,7 @@ I love cats. Once adopted two of them when I was still in the childhood. They ar
 </p>
 
 ### Ashley vs. Halsey
-Same with Halsey, one of my favorite singers, the manic interlude in depression is my friend. I do believe that melancholy exists in the state of its poetic name 'The Black Liquid'. Do not know whether it's fairy or witch's magic elixir. But it helps me think. 'Covered in the colors pull apart at the seams', I just feel that I do have been to this world. Other bands and singers I am in include Rammstein, Ghost, Lana Del Rey, Crystal Castle, Twenty One Pilots and Kent, etc.
+Same with Halsey, one of my favorite singers, the manic interlude in depression is my friend. I do believe that melancholy exists in the state of its poetic name 'The Black Liquid'. Do not know whether it's fairy or witch's magic elixir. But it helps me think. 'Covered in the colors pull apart at the seams', I feel the world cannot be more true as it is. Other bands and singers I am into include Rammstein, Ghost, Lana Del Rey, Crystal Castle, Twenty One Pilots and Kent, etc.
 
  ---
 
