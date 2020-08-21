@@ -9,7 +9,7 @@ I am currently a year one PhD student in Hong Kong University of Science and Tec
   ---
  
  <p>
-  <img width="100" align='left' src="https://github.com/Dolores2333/ZHA-Mengyue/blob/master/AGermanCat.jpg?raw=true">
+  <img width="150" align='left' src="https://github.com/Dolores2333/ZHA-Mengyue/blob/master/AGermanCat.jpg?raw=true">
 </p>
 
 ### Don't Call the Cat Angel
@@ -23,7 +23,7 @@ I love cats. Once adopted two of them when I was still in the childhood. They ar
 </p>
 
 ### Ashley vs. Halsey
-Same with Halsey, one of my favorite singers, the manic interlude in depression is my friend. I do believe that melancholy exists in the state of its poetic name 'The Black Liquid'. Do not know whether it's fairy or witch's magic elixir. But it helps me think. 'Covered in the colors pull apart at the seams', I just feel that I do have been to this world. Other bands and singers I am in include Rammstein, Ghost, Lana Del Rey, Crystal Castle, twenty one pilots and Kent, etc.
+Same with Halsey, one of my favorite singers, the manic interlude in depression is my friend. I do believe that melancholy exists in the state of its poetic name 'The Black Liquid'. Do not know whether it's fairy or witch's magic elixir. But it helps me think. 'Covered in the colors pull apart at the seams', I just feel that I do have been to this world. Other bands and singers I am in include Rammstein, Ghost, Lana Del Rey, Crystal Castle, Twenty One Pilots and Kent, etc.
 
  ---
 
