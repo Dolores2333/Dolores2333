@@ -14,7 +14,7 @@ I am currently a year one PhD student in Hong Kong University of Science and Tec
 
 ### Don't Call the Cat Angel 💗
 
-I love cats. Once adopted two of them when I was still in the childhood. They are mysterious, cute, fierce, kind of sexy and so am I 🩰😘. Basically, I find all kinds of cats are fanscinating but Skogkatt is my new sweetheart. Collecting pics and videos of cats helps me to refreshe the mentally and physically draining PhD life. Thanks to these angels. Oops, my bad, they are Satans 👼😈. 
+I love cats. Once adopted two of them when in my childhood. They are mysterious, cute, fierce, kind of sexy and so am I 🩰😘. Basically, I find all kinds of cats are fanscinating but Skogkatt is my new sweetheart recently. Collecting pics and videos of cats helps me to refreshe the mentally and physically draining PhD life. Thanks to these angels. Oops, my bad, they are Satans 👼😈. 
 
  ---
 
