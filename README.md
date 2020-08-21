@@ -4,7 +4,7 @@
 </p>
 Hey there 👋,
 </p>
-I am currently a year one PhD student in Hong Kong University of Science and Technology. My research interest lies anywhere Statistics and Machine Learning can help me to know this world better. Still struggling in learning html, I hope soon all my notes taken in Google docs will be moved to this page for share. I am composed 30 percent of a cat lover 🐈💕, 30 percent being musical maniac 🎼☠️ , 30 percent being addicted to reading ⭐🧠.
+I am currently a year one PhD student in Hong Kong University of Science and Technology. My research interest lies everywhere Statistics and Machine Learning help me to know this world better. Still struggling in learning html, I hope soon all my notes taken in Google docs will be moved to this page for share. I am composed 30 percent of a cat lover 🐈💕, 30 percent being musical maniac 🎼☠️ , 30 percent being addicted to reading ⭐🧠.
  
   ---
  
