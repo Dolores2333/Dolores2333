@@ -4,7 +4,7 @@
 </p>
 Hey there 👋,
 </p>
-I am currently a year four PhD student at Hong Kong University of Science and Technology. My research interest lies in Statistical Machine Learning. Recently, I focus on differential privacy. I am 50 percent of a cat person 🐈💕, 40 percent being musical maniac 🎼☠️ and 10 percent intentionally left blank 😉.
+I am currently a year four PhD student at Hong Kong University of Science and Technology. My research interest lies in Statistical and recently, has focused on differential privacy. I am 50 percent of a cat person 🐈💕, 40 percent being musical maniac 🎼☠️ and 10 percent intentionally left blank 😉.
  
   ---
  
