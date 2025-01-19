@@ -37,7 +37,3 @@ Moi! Moi! I spent my one semester exchange in Finland in 2019. Turku witnessed t
 Other countries I visited in Europe are Sweden, Norway, Iceland, Baltic States, Czechia, Germany, Belgium and Italy. Cinnamon rolls and Glögg kind of saved my life in the dark and cold nights in Nordic Countries. 
 
  ---
-
-<p>
-
-![Mengyue's Github Stats](https://github-readme-stats.vercel.app/api?username=Dolores2333&show_icons=true&theme=radical)
