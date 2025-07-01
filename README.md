@@ -4,7 +4,7 @@
 </p>
 Hey there 👋,
 </p>
-I am currently a fourth year PhD student at Hong Kong University of Science and Technology. My research interest lies in Statistics and recently, has focused on differential privacy. I am 50 percent of a cat person 🐈💕, 40 percent being musical maniac 🎼☠️ and 10 percent intentionally left blank 😉.
+I obtained my PhD in Mathematics at HKUST in 2025. My research interest lies in Synthetic Data (applied to e.g. AI driven healthcare) and differential privacy (more recently, privacy and security in LLM). I am 50 percent of a cat person 🐈💕, 40 percent being musical maniac 🎼☠️ and 10 percent intentionally left blank 😉.
  
   ---
  
@@ -14,7 +14,7 @@ I am currently a fourth year PhD student at Hong Kong University of Science and 
 
 ### Don't Call the Cat Angel 💗
 
-I love cats. Once adopted two of them. The videos of cats in Tiktok help me to survive from my PhD life. Thanks to these angels. Oops, my bad, they are Satans 👼😈. 
+I love cats and raised two. The videos of cats in Tiktok help me to survive from my PhD life. Thanks to these angels. Oops, my bad, they are Satans 👼😈. 
 
  ---
 
@@ -23,7 +23,7 @@ I love cats. Once adopted two of them. The videos of cats in Tiktok help me to s
 </p>
 
 ### Ashley vs. Halsey 🦄
-Music helps me to think. Some bands and singers I am into include Rammstein, Ghost, Lana Del Rey, Crystal Castle, Twenty One Pilots and Kent, etc.
+Music helps me to think. I am into Rammstein, Till Lindemann, Twenty One Pilots, Lana Del Rey, Kent, Ghost and Crystal Castle.
 
  ---
 
@@ -32,8 +32,8 @@ Music helps me to think. Some bands and singers I am into include Rammstein, Gho
 </p>
 
 ### My Story with Finland ❄️
-Moi! Moi! I spent my one semester exchange in Finland in 2019. Turku witnessed the happiest four months in my life. 
+Moi! Moi! I spent my one semester in Finland in 2019. Turku witnessed the happiest four months in my life. 
 
-Other countries I visited in Europe are Sweden, Norway, Iceland, Baltic States, Czechia, Germany, Belgium and Italy. Cinnamon rolls and Glögg kind of saved my life in the dark and cold nights in Nordic Countries. 
+Other countries I visited are Sweden, Norway, Iceland, Baltic States, Czechia, Germany, France, Belgium, Italy and the US. Cinnamon rolls and Glögg kind of saved my life in the dark and cold nights in Nordic Countries. 
 
  ---
