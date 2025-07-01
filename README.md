@@ -19,7 +19,7 @@ I love cats and raised two. The videos of cats in Tiktok help me to survive from
  ---
 
 <p>
-  <a href="https://github.com/Dolores2333/ZHA-Mengyue/blob/master/HalseyPaint.jpg"><img width="100" align='right' src="https://github.com/Dolores2333/ZHA-Mengyue/blob/master/HalseyPaint.jpg?raw=true"></a>
+  <a href="https://github.com/Dolores2333/ZHA-Mengyue/blob/master/HalseyPaint.jpg"><img width="160" align='right' src="https://github.com/Dolores2333/ZHA-Mengyue/blob/master/MeSittingOnIce.jpg?raw=true"></a>
 </p>
 
 
