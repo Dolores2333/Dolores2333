@@ -4,7 +4,7 @@
 </p>
 Hey there 👋,
 </p>
-I obtained my PhD in Mathematics at HKUST in 2025. My research interest lies in Synthetic Data (applied to e.g. AI driven healthcare) and differential privacy (more recently, privacy and security in LLM). I am 50 percent of a cat person 🐈💕, 40 percent being musical maniac 🎼☠️ and 10 percent intentionally left blank 😉.
+I obtained my PhD in Mathematics at HKUST in 2025. My research focuses on Synthetic Data (applied to e.g. AI driven healthcare) and differential privacy (more recently, privacy and security in LLM). I am 50 percent of a cat person 🐈💕, 40 percent being musical maniac 🎼☠️ and 10 percent intentionally left blank 😉.
  
   ---
  
