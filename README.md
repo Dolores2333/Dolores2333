@@ -14,7 +14,7 @@ I obtained my PhD in Mathematics at HKUST in 2025. My research focuses on synthe
 
 ### Don't Call the Cat Angel 💗
 
-I love cats and raised two. The videos of cats in Tiktok help me to survive from my PhD life. Thanks to these angels. Oops, my bad, they are Satans 👼😈. 
+I love cats and raised two. Cats on Tiktok help me to survive from my PhD life. Thanks to these angels. Oops, my bad, they are Satans 👼😈. 
 
  ---
 
@@ -26,6 +26,6 @@ I love cats and raised two. The videos of cats in Tiktok help me to survive from
 ### My Story with Finland ❄️
 Moi! Moi! I spent my one semester in Finland in 2019. Turku witnessed the happiest four months in my life. 
 
-Other countries I visited are Sweden, Norway, Iceland, Baltic States, Czechia, Germany, France, Belgium, Italy and the US. Cinnamon rolls and Glögg kind of saved my life in the dark and cold nights in Nordic Countries. 
+I also visited Sweden, Norway, Iceland, Baltic States, Czechia, Germany, France, Belgium, Italy and the US. Cinnamon rolls and Glögg kind of saved my life in the dark and cold nights in Nordic Countries. 
 
  ---
